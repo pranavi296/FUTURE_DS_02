@@ -75,4 +75,4 @@ This section highlights areas where profitability can be improved.
 
 
 
-If you want, I can also show you **3 things that instantly make your GitHub Power BI project look 10× more professional to recruiters** (most students completely miss them).
+
